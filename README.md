@@ -5,8 +5,6 @@ In this episode Ben and company start building the Holiday Present Protection Sy
 
 Watch the episode at: http://www.element14.com/community/docs/DOC-79973/l/episode-216-ben-hecks-star-wars-christmas-special-episode
 
-Join the element14 community! - http://bit.ly/1NCw0CG
+Join the element14 community! - http://www.element14.com/tbhs
 
-Learn more about TE Connectivity! - http://bit.ly/1OL9W6I
-
-Watch Your Build Ideas for November 2015! - http://bit.ly/1NM27xR
+Watch Your Build Ideas for November 2015! - http://www.element14.com/community/videos/18374/l/your-build-ideas--november-2015
